@@ -1,1 +1,1 @@
-Voici le lien menant vers mon bettermotherfuckingwebsite : 
+Voici le lien menant vers mon bettermotherfuckingwebsite !
